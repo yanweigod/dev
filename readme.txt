@@ -1,5 +1,1 @@
-get init...
-
-codingke xiaoguang
-
-123456
+good good study up up day
